@@ -1,1 +1,1 @@
-# digital-writing-folio
+Loke Britz is an aspiring writer. Interested in fiction, he has written multiple short stories, which he publishes on Patreon. Loke enjoys listening to music and audiobooks. He also enjoys playing videogames and travel
